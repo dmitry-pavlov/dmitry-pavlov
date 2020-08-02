@@ -1,3 +1,3 @@
-### 🤖C0D1NG MACH1NE: HELL0 W0RLD! #C0FFEE => #C0DE
+### h3ll0 fr0m th3 🤖 c0d1ng m4ch1n3: #c0ffee => #c0de
 
 
